@@ -1,4 +1,4 @@
-### vai toma nu C* PIRANH* 👋
+### my name is mclovin 👋
 
 <!--
 **giancarllo57/giancarllo57** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
